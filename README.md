@@ -1,6 +1,6 @@
-[![Kagamine-Len.jpg](https://i.postimg.cc/bYFX7NHP/Kagamine-Len.jpg)](https://postimg.cc/NLTPTtzC)
+[![Byakuya-screenshots.jpg](https://i.postimg.cc/tTY9Z9pM/Byakuya-screenshots.jpg)](https://postimg.cc/k630L3VQ)
 
-**HELLO! I like Noob**
+**HELLO! I like Noob and Danganronpa**
 
 [![noob-ezgif-com-optimize.gif](https://i.postimg.cc/Gtj4pTcX/noob-ezgif-com-optimize.gif)](https://postimg.cc/RJNSsFJt)
 
