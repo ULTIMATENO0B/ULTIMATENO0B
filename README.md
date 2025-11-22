@@ -1,5 +1,7 @@
 **Someone buy me the danganronpa trilogy**
 
+Did NOT know where to put this but big big disclaimer I do have anger issues or get angry easily. If I say or do anything just dont take it the wrong way cause its on me not you<3
+
 
 [![Byakuya-screenshots.jpg](https://i.postimg.cc/tTY9Z9pM/Byakuya-screenshots.jpg)](https://postimg.cc/k630L3VQ)
 
