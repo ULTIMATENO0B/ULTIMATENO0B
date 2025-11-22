@@ -1,5 +1,4 @@
-**This document may or may not be finished, as we are still attempting to fix it. Do not go out of your way to harass anyone mentioned. This is only to bring up our side of the story.**
-**Editing response! Thank you for repling!**
+**Someone buy me the danganronpa trilogy**
 
 
 [![Byakuya-screenshots.jpg](https://i.postimg.cc/tTY9Z9pM/Byakuya-screenshots.jpg)](https://postimg.cc/k630L3VQ)
