@@ -1,5 +1,5 @@
 **This document may or may not be finished, as we are still attempting to fix it. Do not go out of your way to harass anyone mentioned. This is only to bring up our side of the story.**
-https://docs.google.com/document/d/1U4tWt7p0W3KN8w8USLJ6g0iafh7pvK5dANTQhvtgZ6U/edit?usp=sharing
+**Editing response! Thank you for repling!**
 
 
 [![Byakuya-screenshots.jpg](https://i.postimg.cc/tTY9Z9pM/Byakuya-screenshots.jpg)](https://postimg.cc/k630L3VQ)
