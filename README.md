@@ -5,7 +5,7 @@
 
 <img src="https://i.pinimg.com/736x/8c/b2/d5/8cb2d518a31fdbadb22fd30fc2f2a6cb.jpg" alt="Story pin image"/>
 
-**HELLO! I like Noob and Danganronpa**
+**HELLO! I am redoing this!!**
 
 [![noob-ezgif-com-optimize.gif](https://i.postimg.cc/Gtj4pTcX/noob-ezgif-com-optimize.gif)](https://postimg.cc/RJNSsFJt)
 
